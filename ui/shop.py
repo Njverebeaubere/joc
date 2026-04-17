@@ -1,0 +1,1 @@
+# Magazinul de echipament\n
